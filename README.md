@@ -18,4 +18,4 @@ During the program, I applied these leadership frameworks to real-world strategi
 ---
 
 ![UC Berkeley Leading Strategy Execution through Culture Certificate](images/KV_Berkeley_Leading_Strategy_Execution_through_Culture_Certificate.jpg)
-*UC Berkeley Professional Certificate: Leading Strategy Execution through Culture*
+*UC Berkeley Leading Strategy Execution through Culture Certificate*
